@@ -1,0 +1,2 @@
+# synapse-x-cracked
+NEW SYNAPSE X CRACKED MADE BY ME ! UPDATES EVERY WEEK
