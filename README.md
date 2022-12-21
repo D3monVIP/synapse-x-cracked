@@ -22,6 +22,7 @@
 
 ## Preview
 
+![demonakis synapse](https://user-images.githubusercontent.com/108791307/208962423-a3576d3f-8600-470b-9d31-41d05a6bb2ea.png)
 
 # STATUS
 
